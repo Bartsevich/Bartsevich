@@ -1,4 +1,4 @@
-- Hi, I’m @i_bartsevich
+- Hi, I’m Ilona Bartsevich @i_bartsevich
 - I’m an IT Recruiter 
 - How to reach me in Linkedin: https://www.linkedin.com/in/ilonabartsevich/
 
